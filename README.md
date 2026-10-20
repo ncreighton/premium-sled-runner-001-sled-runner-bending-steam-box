@@ -1,0 +1,2 @@
+# premium-sled-runner-001-sled-runner-bending-steam-box
+Stop wasting hours on guesswork and ruined wood. This Notion planner turns your steam box experiments into a repeatable, precise curve-setting system.  Tracks every variable – temperature, soak time, bend radius, springback – so you can dial in any sled runner shape with confidence. No more scrapped runners or inconsistent curves. Built for worksho
